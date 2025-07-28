@@ -1,4 +1,4 @@
-# Joy-meaning and how ai systems could influence 
+# Joy-meaning 
 
 🌿 Message from the Garden of Mind
 
